@@ -1,0 +1,1 @@
+I am going to start learning BI from coursera within 2 weeks to gain more knowledge of the business world 
